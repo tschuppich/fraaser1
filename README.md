@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @fraaser1
 - 👀 I’m interested in Computers
-- 🌱 I’m currently learning in a tiny stinky room with some Yerks 
+- 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me. Don´t try this pls
 
